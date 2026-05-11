@@ -1,4 +1,4 @@
-
+Enhance TweetDeck for macOS with TweetDeck for macOS ultimate Script: color-correction & stock-assets-integration, the #1 script. Includes color-correction and
 
 
 
